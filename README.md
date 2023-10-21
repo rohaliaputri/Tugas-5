@@ -1,0 +1,7 @@
+![logo](https://github.com/rohaliaputri/Tugas-5/assets/144677172/5201b3c8-e96f-4c20-afff-37de065e58e5)
+![gambar](https://github.com/rohaliaputri/Tugas-5/assets/144677172/e2b840dd-8e21-4fb8-b299-923014a8c683)
+![Salad](https://github.com/rohaliaputri/Tugas-5/assets/144677172/9a80138d-9fbd-4d63-9895-c2decc8e439d)
+![Olahraga](https://github.com/rohaliaputri/Tugas-5/assets/144677172/cb16a74f-0ae3-4f75-a6e2-beea6c15126c)
+![Meditasi](https://github.com/rohaliaputri/Tugas-5/assets/144677172/d8a7a5e8-63df-4756-9f37-a665fe50479b)
+![Sleep](https://github.com/rohaliaputri/Tugas-5/assets/144677172/4552b1bc-5d4a-4ab1-a2e6-af2998b61940)
+![People](https://github.com/rohaliaputri/Tugas-5/assets/144677172/a8eb0ebc-7efc-439e-8941-c00b1124e7fc)
